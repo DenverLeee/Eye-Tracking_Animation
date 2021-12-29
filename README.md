@@ -5,4 +5,4 @@
 > * Choose a video of your choice from Pexels.com
 > * Create a simple animation in After Effects
 > * Smoothly track the video to your animation using motion tracking
-
+> > USING Adobe After Effect OPEN!!!!!!!!!!!
